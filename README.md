@@ -12,3 +12,5 @@ Now, a final piece of the puzzle remains. The answer you seek is hidden within t
 Where clues are simple but outcomes complex.
 A man of reason, logic, and flair,
 His secret awaits — are you sharp enough to dare?"
+
+The path leads to the master of deduction, followed by three steady steps..!!
